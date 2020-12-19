@@ -11,7 +11,7 @@ https://uname9311.github.io/ytsearchlinks/ysearch_ita.html
 
 https://uname9311.github.io/ytsearchlinks/ysearch_jap.html
 
-https://uname9311.github.io/ytsearchlinks/ysearch_jap.html
+https://uname9311.github.io/ytsearchlinks/ysearch_span.html
 
 
 
