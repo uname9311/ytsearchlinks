@@ -1,6 +1,13 @@
 
 published site : https://uname9311.github.io/ytsearchlinks/
 
+https://uname9311.github.io/ytsearchlinks/ysearch_compound.html
+https://uname9311.github.io/ytsearchlinks/ysearch_fre.html
+https://uname9311.github.io/ytsearchlinks/ysearch_germ.html
+https://uname9311.github.io/ytsearchlinks/ysearch_ita.html
+https://uname9311.github.io/ytsearchlinks/ysearch_jap.html
+https://uname9311.github.io/ytsearchlinks/ysearch_jap.html
+
 creative idea and search prompts from youtube
 in multiple languages,
 
