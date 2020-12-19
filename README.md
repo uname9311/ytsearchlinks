@@ -13,6 +13,10 @@ https://uname9311.github.io/ytsearchlinks/ysearch_jap.html
 
 https://uname9311.github.io/ytsearchlinks/ysearch_jap.html
 
+
+
+
+
 creative idea and search prompts from youtube
 in multiple languages,
 
